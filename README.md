@@ -1,1 +1,1 @@
-# recetas-f-ciles
+# recetas-faciles
